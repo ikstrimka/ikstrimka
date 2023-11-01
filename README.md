@@ -1,4 +1,3 @@
-![A](https://media.tenor.com/z-N6G4F6nb8AAAAd/cat-cute.gif)
 
 # 🤡 ikkstrimkkkaaa??
 
