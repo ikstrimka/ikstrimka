@@ -1,8 +1,4 @@
-<p align="center">
-  <a href="https://github.com/arthurspk/guiadevbrasil">
-    <img src="https://media.tenor.com/z-N6G4F6nb8AAAAd/cat-cute.gif">
-  </a>
-</p>
+
 # 🤡 ikkstrimkkkaaa??
 
 ### 🎃 I`m just a clown, don't think that I can do something cool..
