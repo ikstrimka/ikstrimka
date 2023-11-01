@@ -1,4 +1,3 @@
-
 # 🤡 ikkstrimkkkaaa??
 
 ### 🎃 I`m just a clown, don't think that I can do something cool..
