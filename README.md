@@ -16,3 +16,8 @@
 [![YOUTUBE](https://img.shields.io/badge/YOUTUBE-444444?style=for-the-badge&logo=YOUTUBE&logoColor=ffffff)](https://www.youtube.com/@ikstrimka)
 
 
+<p align="center">
+  <a href="https://github.com/arthurspk/guiadevbrasil">
+    <img src="https://media.tenor.com/z-N6G4F6nb8AAAAd/cat-cute.gif">
+  </a>
+</p>
