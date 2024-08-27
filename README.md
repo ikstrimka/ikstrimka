@@ -1,6 +1,6 @@
-# 🤡 ikkstrimkkkaaa??
+# ikstrimka
 
-### 🎃 I`m just a clown, don't think that I can do something cool..
+### 🎃 Best developer ever
 
 ## Languages that i started to learn:
 
